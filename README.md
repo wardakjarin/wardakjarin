@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=B6FFF9A6&background=000000&random=false&width=435&lines=Hello+World!;It's+me+JARIN;Currently+Studying+myself;Learning+ML+recently;Interested+in+Blockchain)](https://git.io/typing-svg)
